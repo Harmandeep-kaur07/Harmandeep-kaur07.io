@@ -16,3 +16,12 @@
 |19/07/24|Er kanwardeep kalra|give us a detail introduction of college to corporate journey 
 |19/07/24|Jaswinder Singh|give an interesting information about science and introduce with many interesting science experiments|
 |department visit|
+|23/07/24|SS|doing integration|
+|23/07/24|....|making a pamplate on canva and introduce with other features of canva|
+|23/07/24|Dr parminder Singh|give information about post matric scholarship|
+|24/07/24|Mr gauravdeep singh|share there valuable thoughts and their great journey of life|
+|24/07/24|Er lakhveer Singh|give introduction about CML|
+|24/07/24|....|give information about cosmic club|
+|25/07/24|jasmeen kaur Mam|in UHV class tell us about harmony in society and family|
+|25/07/24|....|introduction about college|
+|25/07/24|RK|maths test|
